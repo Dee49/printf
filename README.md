@@ -1,1 +1,1 @@
-Team or Group Project
+This is a team project done by Dibuseng and Selloane
